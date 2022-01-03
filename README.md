@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Dustin-D
+- 👀 I’m interested in you leaving me alone.
+- 🌱 I’m currently learning how to function in society
+- 💞️ I’m looking to collaborate on nothing. Good Day Sir.
+- 📫 How to reach me? Please do not reach me.
